@@ -10,4 +10,5 @@ Meu nome é Kaique Matheus Segecic Aparicio
 
 kaiquemath2029@outlook.com
 
-![](https://github.com/Baixinho20/Baixinho20/assets/171054838/3d9ac6d6-1638-496e-b8ee-91b31dc6a9f5)
+![](https://github.com/Baixinho20/Baixinho20/assets/171054838/5fd77da4-0c95-412d-a832-172a4be65e2e)
+
